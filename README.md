@@ -13,14 +13,14 @@ sua textura matte confortável deixa a pele com toque aveludado
 algumas qualidades de nossa base
 - vegana
 - com vitamina E
--acabamento ultra matte
+- acabamento ultra matte
 - seca rápido
--a prova de água
--cobertura média/alta 
--pele perfeita para fotos 
--não craquela ao longo do dia 
--não marca os porons
--não testada em animais
+-  prova de água
+- cobertura média/alta 
+- pele perfeita para fotos 
+- não craquela ao longo do dia 
+- não marca os porons
+- não testada em animais
 
 o valor total de nossa base sai por 70,50 (apenas a base) pagando a vista você terá um desconto 
 se você quiser também pode adquirir nosso batom, com isso irá de brinde o Sérum!!!
